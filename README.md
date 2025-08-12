@@ -73,7 +73,7 @@ Amarnani, R.K., et al. "Consumed by Obsession: Career Adaptability Resources and
 
 Gorovei, Alina-Alexandra. "Does Work Make You Happy? Job Satisfaction and Happiness in the Modern World."_ Revista Economica_, vol. 72, no. 1, 2020, pp. 76–86. http://oldeconomice.ulbsibiu.ro/revista.economica/archive/72108gorovei.pdf.
 
-Jain, Gagan, and Mukta Singhvi. "Happiness in the Age of Artificial Intelligence." _Communication and Security Studies_, no. 3, 2018, pp. 102–117. https://www.academia.edu/37612024/CSS_2018_No_3_pdf#page=209.
+Jain, Gagan, and Mukta Singhvi. "Happiness in the Age of Artificial Intelligence." _Contemporary Social Sciences_, no. 3, 2018, pp. 102–117. https://www.academia.edu/37612024/CSS_2018_No_3_pdf#page=209.
 
 Joshi, Ashima, and Jolly Masih. "Enhancing Employee Efficiency and Performance in Industry 5.0 Organizations through Artificial Intelligence Integration." _European Economics Letters_, vol. 13, 2023, pp. 300–315. https://www.researchgate.net/publication/374030579_ENHANCING_EMPLOYEE_EFFICIENCY_AND_PERFORMANCE_IN_INDUSTRY_50_ORGANIZATIONS_THROUGH_ARTIFICIAL_INTELLIGENCE_INTEGRATION.
 
